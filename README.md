@@ -2,7 +2,7 @@
 
 
 - 🔭 Trabalhando como tutora de Cálculo 1
-- 🌱 Graduando em Licenciatura em Matemática
+- 🌱 Cursando Licenciatura em Matemática
 
 ##
 
